@@ -1,1 +1,1 @@
-El taller me parece interesante y útil
+El taller me parece malo
